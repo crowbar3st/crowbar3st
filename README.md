@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @crowbar3st
+- 👋 Hi, I’m @saik1117
 - 👀 I’m interested in ASTROPHYSICS WOOHOOO
 - 🌱 I’m currently learning how to code, im a complete beginner lol
 - 📫 How to reach me --> definetly not a prank number 1-888-447-5594
